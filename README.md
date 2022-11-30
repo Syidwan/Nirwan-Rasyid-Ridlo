@@ -1,1 +1,0 @@
-# Nirwan-Rasyid-Ridlo
